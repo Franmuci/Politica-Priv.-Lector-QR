@@ -1,4 +1,5 @@
 **Política de Privacidad para la Aplicación "Lector QR"**
+
 **1. Identidad del Titular de la Aplicación**
 El titular de la aplicación "Lector QR" es Francisco Muñoz Cifuentes. Puedes contactarnos en "franloko70@gmail.com".
 
